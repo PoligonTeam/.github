@@ -13,7 +13,11 @@
 
 - ⚡ fun fact **we love femboys**
 
-<h3 align="left">Connect with me:</h3>
+- ⚰️ rip lil peep 1996-2017
+
+- 🖤 we are emo
+
+<h3 align="left">Connect with us:</h3>
 <p align="left">
 <a href="https://discord.gg/tDQURnVtGC" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="tDQURnVtGC" height="30" width="40" /></a>
 </p>
